@@ -60,4 +60,5 @@ To continue using the Bot means accepting the new version of the Terms.
 
 In case you need answers to your queries regarding these Terms, please do contact us at: 
 
-???? [Your Contact Info or Discord Username] 
+.sijah or any other tester..!!!!!!!!!!
+
